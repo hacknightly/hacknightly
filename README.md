@@ -66,7 +66,7 @@
 
 <a id="org9576b6b"></a>
 
-- I can get a bit "philosophical** so please feel free to pull me back down to earth when my thoughts get lofty.
+- I can get a bit "philosophical" so please feel free to pull me back down to earth when my thoughts get lofty.
 
 
 <a id="org85cb5cb"></a>
