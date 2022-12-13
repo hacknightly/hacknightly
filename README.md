@@ -11,7 +11,7 @@
 
 <a id="org1497e3c"></a>
 
-- 🚶🏿 Just a laid back guy with a passion for building meaningful software and personal productivity! I'm probably in the middle of a Pomodoro right now lol.
+- 🚶🏿 Just a laid back guy with a passion for building meaningful software and personal productivity! I'm probably in the middle of a Pomodoro right now! I'm deeply, intrinsically motivated by self-development and failing forward, so I'm looking forward to learning from my future mistakes.
 
 
 <a id="org2df8652"></a>
